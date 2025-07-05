@@ -15,6 +15,6 @@
 简洁的界面设计和智能推荐系统，使得用户能够轻松找到自己感兴趣的影片，提升观影体验。
 总之，提供日本AV免费资源的平台，不仅内容丰富、更新及时，还保障了用户的安全和隐私，成为观众的首选。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/x20250705/x01 ）</span>
 
 
